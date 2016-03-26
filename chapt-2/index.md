@@ -66,12 +66,7 @@ At first, your mind may be very busy, and it might even feel that the like the m
 #### Gently keep your focus on Breath 
 As you sit here focusing on the breath, your mind will inevitably wander off. This is natural; it is simply what our minds are in the habit of doing. When you become aware that your attention has gotten caught up in a thought or feeling or sensation, simply notice that. You might even gently say to yourself "Not now," and allow your mind to release the thought, bringing attention once again to the very next breath. There is no need to judge yourself when the mind wanders. Simply notice, let go, and begin again with the next breath. This noticing and beginning again is part of the practice.
 
-In these last few moments, renewing your intention to stay present, as best you can, beginning again and again, as many times as you need to. Letting go of the thoughts and arriving again right here, with attention on the sensations of breathing.
 
-Now gently expanding your focus to include the room around you and the people here. When you are ready, very slowly and gently allow your eyes to open, staying with this sense of awareness.
-
-# Acceptance 
-Allowing for thoughts and feelings without judgment 
 
 One reason people find mindfulness practice and being more in the present challenging is that it can make us more aware of many of our thoughts and feelings, and some of them may be negative. This is why it important for us to practice acceptance of these thoughts and feelings and to learn to be more compassionate with ourselves.
 
